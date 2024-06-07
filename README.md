@@ -1,5 +1,5 @@
-مرحباً👋🏻
-أنا تهليل يامين 
-طالبة في مدرسة إناث قلقيلية الشرعية 
-أهتم في تنمية مهاراتي بالتكنولوجيا والبرمجة
+Hello👋🏻
+ I am Tahlil Yamin 
+ Student at Qalqilya Sharia Girls School 
+ I am interested in developing my skills in technology and programming
 
